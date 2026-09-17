@@ -1,1 +1,0 @@
-# Fotocheck-Senati
